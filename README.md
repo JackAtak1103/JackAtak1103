@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JackAtak1103
+- 📫 Reach me via email: #######@gmail.com 
+- 😄 Pronouns: (He, Him) 
